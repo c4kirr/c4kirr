@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @c4kirr
+- Gerçekçi ol, imkansızı iste
